@@ -1,4 +1,4 @@
-### Hi there 👋
+### Olá, eu sou a Mayara Plaza 👋
 
 
 <P>🤔   Explorando novas tecnologias e desenvolvendo soluções de software.
